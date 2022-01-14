@@ -10,4 +10,4 @@ On the other hand of the struggle, against the fear, are innocent desires of wor
 
 Well, I am here now. It might seem like my innocent desires have proven itself greater than my fear but the struggle is not over. In fact, I am trying to come to terms with the highly likely possibility that this struggle may never be over. So, here is a little prayer to myself, may you always prevail. 
 
-*Thank you for reading. Should you ever want to contact me, feel free to email quietcornerofanoisymind@gmail.com*
+*Thank you for reading. Should you ever want to contact me, feel free to email me at quietcornerofanoisymind@gmail.com*
